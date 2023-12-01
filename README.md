@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @chelseawullenweber
+- 👀 I’m interested in most everything
+- 🌱 I’m currently learning C
+- 💞️ I’m looking to collaborate on whatevs. Let me know what you're working on!
+- 📫 Reach me @ chelseawullenweber@gmail.com
